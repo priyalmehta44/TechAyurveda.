@@ -1,4 +1,4 @@
-# techayurveda
+#TechAyurveda.
 Welcome to my blog...
 I am here to introduce you to TechAyurveda.
 
@@ -19,7 +19,7 @@ One more interesting thing is Ayurvedic products.
 From my own experience companies which are making Ayurvedic Products are compromising the quality of products.
 So people prefer to buy these products from vaidyas which is made by himself.
 But again there is work and stress. Not only that but the quantity made by vaidyas are also limited.
-So I am suggesting that instesd of doing manually prefer an instrument for it.
+So I am suggesting that instead of doing manually, prefer an instrument for it.
 
 There are many opportunities for Technology in Ayurveda. The only thing is enthusiasm and dedication to do something beyond the world without the limit of sky also....
 
