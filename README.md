@@ -1,5 +1,4 @@
-# techayurveda.github.io
-TechAyurveda
+# techayurveda
 Welcome to my blog...
 I am here to introduce you to TechAyurveda.
 
