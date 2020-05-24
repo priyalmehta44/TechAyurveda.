@@ -1,5 +1,7 @@
 #TechAyurveda.
+
 Welcome to my blog...
+
 I am here to introduce you to TechAyurveda.
 
 So now what does the TechAyurveda means?
