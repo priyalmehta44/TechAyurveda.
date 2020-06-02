@@ -7,6 +7,7 @@ Welcome to my blog...
 
 ![whatisayurveda](https://user-images.githubusercontent.com/56591293/83489191-af06db80-a4cb-11ea-9e11-769edd2936ea.jpg)
 
+![4 0](https://user-images.githubusercontent.com/56591293/83489807-a236b780-a4cc-11ea-98c7-0e126cf8f341.jpg)
 
 
 
