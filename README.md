@@ -22,11 +22,20 @@ From my own experience companies which are making Ayurvedic Products are comprom
 So people prefer to buy these products from vaidyas which is made by himself.
 But again there is work and stress. Not only that but the quantity made by vaidyas are also limited.
 So I am suggesting that instead of doing manually, prefer an instrument for it.
+
+There are many opportunities for Technology in Ayurveda. The only thing is enthusiasm and dedication to do something beyond the world without the limit of sky also....
+
+
+
+
+
+
+
+
 ![IMG-20200114-WA0000(1)](https://user-images.githubusercontent.com/56591293/83483209-c3dd7200-a4bf-11ea-8e3b-873ce3264cba.jpg)
 
 
 
-There are many opportunities for Technology in Ayurveda. The only thing is enthusiasm and dedication to do something beyond the world without the limit of sky also....
 
 
 
