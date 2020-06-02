@@ -23,34 +23,9 @@ So people prefer to buy these products from vaidyas which is made by himself.
 But again there is work and stress. Not only that but the quantity made by vaidyas are also limited.
 So I am suggesting that instead of doing manually, prefer an instrument for it.
 
-There are many opportunities for Technology in Ayurveda. The only thing is enthusiasm and dedication to do something beyond the world without the limit of sky also....
+There are many opportunities for Technology in Ayurveda. The only thing is enthusiasm and dedication to do something beyond the world without the limit of sky also...
 
 
-
-
-
-
-#immunitybooster Chyavanprash...
-
-![IMG-20200114-WA0000(1)](https://user-images.githubusercontent.com/56591293/83483209-c3dd7200-a4bf-11ea-8e3b-873ce3264cba.jpg)
-
-Now the topic is Chyavanprash...
-Now in the World the one and only topic to discus is "CORONA"
-And I'm also now going to talk about this...
-
-I talked it before that we need collaboration between Technology and Ayurveda.
-The reason I'm talking this is the current situation in the world.
-there's no medicine to cure CORONA in any pathy. I'm not saying that Ayurveda has that medicine to cure that... 
-but Ayurveda knows how to boost up your immunity... and Ayurveda knows that if there's disease caused by anything then its not because of that virus and bacteria and something else
-its because of the immunity weakness of your body...
-
-And what is the use of Chyavanprash? to increase immunity 10 times! There are medicines like HCQ, arsenic album and whatever it is...
-But guys we don't want that artificial immunity which gives us relief temporarily and stress for whole life.
-we want long lasting immunity which is in built.
-there are no side effects also...
-
-so what are we waiting for...
-grab your Chyavanprash right now!!!
 
 
 
