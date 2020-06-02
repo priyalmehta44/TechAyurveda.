@@ -1,10 +1,12 @@
 #TechAyurveda.
 
-Welcome to my blog...!
+Welcome to my blog...
 
 
 
-[whatisayurveda](https://user-images.githubusercontent.com/56591293/83489191-af06db80-a4cb-11ea-9e11-769edd2936ea.jpg)
+
+![whatisayurveda](https://user-images.githubusercontent.com/56591293/83489191-af06db80-a4cb-11ea-9e11-769edd2936ea.jpg)
+
 
 
 
