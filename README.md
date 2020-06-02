@@ -5,6 +5,7 @@ Welcome to my blog...
 
 
 
+![techayurveda](https://user-images.githubusercontent.com/56591293/83491427-5c2f2300-a4cf-11ea-80c9-adde16a4fd4e.jpg)
 
 
 
